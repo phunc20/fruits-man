@@ -1,2 +1,3 @@
 - May, June
 - Durian is like absorbing solar energy, its righteous season being summer
+- Where: Đà Lạt, etc.
